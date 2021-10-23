@@ -1,0 +1,5 @@
+Public Service Announcement: If you own an iOS device, such as an iPhone or an iPad, and you send the emoji at top left to a friend, you may not be sending exactly what you mean to.
+
+The nerd in the top left is clearly comfortable in his own skin.  He may be a fan of Star Wars, and dress up like Obi-Wan for Dragon Con, but he doesn't flash the nerd thing in your face 24/7 (e.g., "Haha, I'm such a nerd...", "OMG I'll never get a girlfriend lol", or "Do you even watch anime, bro?").  Rather, he is a relatively intelligent, relatively bookish, relatively well-adjusted young man.  He can wow you with some of his knowledge, but he doesn't pin you into a corner till he can convince you that when he pins insects onto a pizza box, it is a perfectly normal hobby for a 35 year old man.  (Just for the record, it is.)  In other words, he's--ya know--a nerd.  But not--ya know--a nerd nerd.
+
+Nerd emoji #1 (clockwise from the aforementioned canonical nerd, which we have indubitably dubbed nerd emoji #0 (it's called 0-based indexing--Google it, gosh!)) 
